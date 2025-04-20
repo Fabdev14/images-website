@@ -1,3 +1,3 @@
-# IMÁGENES PARA USO EN SECCIONES DE WEBSITES.
+# Imágenes para uso en secciones de sitios webs.
 
 Imagenes de muy buena calidad.
